@@ -1,4 +1,4 @@
-# Sanam teri kasam (2025) (𝐃𝐨𝐰𝐧𝐥օ𝐚𝐝 𝐌𝐨𝘃𝗶e) 𝐅𝐢𝐥𝐦𝐲𝒛𝒊𝒍𝒍𝒂 𝐦𝐩𝟒𝐦𝐨𝐯𝐢𝐞𝐳 𝐯𝐞𝐠𝐚𝐦𝘰𝘷𝘪𝘦𝘴 𝒇𝒊𝒍𝒎𝒚𝒘𝒂𝒑 in 𝐇in𝐝𝐢 𝙁𝙧𝚎𝐞 𝟕𝟸𝟎𝐩, 𝟒𝟾𝟎𝐩 & 𝟏𝟎𝟾𝟎𝐩 𝙃𝘿
+# Sanam Teri Kasam (2025) (𝐃𝐨𝐰𝐧𝐥օ𝐚𝐝 𝐌𝐨𝘃𝗶e) 𝐅𝐢𝐥𝐦𝐲𝒛𝒊𝒍𝒍𝒂 𝐦𝐩𝟒𝐦𝐨𝐯𝐢𝐞𝐳 𝐯𝐞𝐠𝐚𝐦𝘰𝘷𝘪𝘦𝘴 𝒇𝒊𝒍𝒎𝒚𝒘𝒂𝒑 in 𝐇in𝐝𝐢 𝙁𝙧𝚎𝐞 𝟕𝟸𝟎𝐩, 𝟒𝟾𝟎𝐩 & 𝟏𝟎𝟾𝟎𝐩 𝙃𝘿
 
 The world of cinema is constantly evolving, with filmmakers exploring new ideas, themes, and technologies to captivate audiences. One of the most anticipated films in recent years is *Sanam teri kasam 2025*, a futuristic, action-packed drama that promises to take viewers on a thrilling ride into a world filled with advanced technology.
 
